@@ -20,7 +20,7 @@
 
 **INSPIRATIONS :** Elizabeth Ethel Cordelia Midford (black butler), Hornet ( Hollow Knight ), Irene Urzaiz (Gakusen Toshi Asterisk). 
 
-**NOTES :** /
+**NOTES :** Filles du Compte Adler et de Patience Foliot, Irène est née dans l'art du combat au corps à corps. Dès sont plus jeune age c'était elle la numéro un de son école d'escrime. Elle fait exception a la règle. Ses deux frère Wilde et Newp ne lui arrivaient pas à la cheville malgré leurs ages. Elle pris part à la guerre du pays de l'été ( Avraysia ), avec un totale de 1001 morts à son actif... au retour de cette guerre, Irène retrouva le domaine de ses parents brûlée et eux avec .
 
 `Jouée par MathSky`
 
