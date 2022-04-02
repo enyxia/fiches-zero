@@ -22,7 +22,7 @@
 
 **NOTES :** /
 
-`Jouée par Sheele`
+`Anciennement joué par Sheele`
 
 ![Image](https://share.alkanife.fr/bna.png)
 
