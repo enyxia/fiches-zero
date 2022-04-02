@@ -6,7 +6,7 @@
 
 **SEXE :** Féminin
 
-**STATUS :** En vie (S1-now)
+**STATUS :** Décédée (S1)
 
 **SPÉCIALISATIONS :** Soutenant
 
@@ -18,11 +18,11 @@
 
 **POUVOIR :** Sei peut décupler par dix sa puissance à chaque fois que l’un de ses proches trouve la mort. Ce pouvoir est d’ailleurs la seule chose qui ait permis à son corps de la maintenir en vie aussi longtemps. Ce pouvoir s’active automatiquement, Sei n’a pas besoin de savoir ni quelle personne est morte ni à quelle point cette personne était proche d’elle. Ce pouvoir s'est activé 38 fois avant qu'elle ne décède.
 
-**INSPIRATIONS :** 
+**INSPIRATIONS :** /
 
 **NOTES :** Sei déteste l’aristocratie et son fonctionnement parce que c’est à cause de son fonctionnement qu’elle a été adoptée par la famille Hitch à ses 5 ans. Cependant, ses parents biologiques, de la famille Albatrum, ont refusé que l’on puisse changer son nom. C’est précisément pour cette raison que Sei se retrouve aujourd’hui faible et frappée de maladies.
 
-`Jouée par Sheele`
+`Anciennement jouée par Sheele`
 
 ![Image](https://share.alkanife.fr/bna.png)
 
