@@ -22,7 +22,7 @@
 
 **NOTES :** Globalement, vous l'aurez remarqué, Aurore est une arme "parfaite". L'électricité est incapacitante pour l'eau et la glace, le vent contre le vent, le feu, les projectiles et les approches, le feu peut contrer la régénération et la défense, mais également empêcher les approches. En somme, c'est la merde. Donc comment contrer cette arme ? Eh bien, c'est en fait très simple : Soyez agressif. Andreas sera alors forcé de tirer une bille. Si vous continuez à lancer un assaut, il n'aura alors plus qu'une bille pour se défendre ou vous repousser. Une fois cette bille hors-course, Andreas sera alors vulnérable. Bien sûr, la fenêtre de tir est petite et difficile à entreprendre, mais il s'agit du meilleur moyen de contrer Aurore.
 
-`Jouée par Sheele`
+`Joué par Sheele`
 
 ![Image](https://share.alkanife.fr/bna.png)
 
