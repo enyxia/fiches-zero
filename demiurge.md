@@ -27,6 +27,6 @@ Peu de temps après j'entendis la vois de mon père dire qu'il savait pourquoi j
 
 `Anciennement joué par izzumaki, puis par Sheele suite à l'exclusion du joueur.`
 
-![Image](https://share.alkanife.fr/bna.png)
+![Image](https://data.enyxia.fr/images/characters/enyxiazero/demiurge.jpg)
 
 
