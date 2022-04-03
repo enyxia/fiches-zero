@@ -24,5 +24,5 @@
 
 `Ce personnage créé par Sheele n'a jamais été joué. `
 
-![Image](https://share.alkanife.fr/bna.png)
+![Image](https://data.enyxia.fr/images/characters/enyxiazero/vince.jpg)
 
