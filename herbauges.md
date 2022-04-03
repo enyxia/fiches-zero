@@ -24,6 +24,4 @@
 
 `Jouée par Machta Laterrouge`
 
-![Image](https://share.alkanife.fr/bna.png)
-
 
