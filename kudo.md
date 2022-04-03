@@ -24,6 +24,6 @@
 
 `Joué par Sheele`
 
-![Image](https://enyxia.alkanife.fr/images/characters/kudo.png)
+![Image](https://data.enyxia.fr/images/characters/kudo.png)
 
 
