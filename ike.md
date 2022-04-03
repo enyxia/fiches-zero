@@ -25,5 +25,5 @@ Pour copier et transmettre, elle a besoin d'établir un contact physique avec le
 
 `Joué par Sheele`
 
-![Image](https://share.alkanife.fr/bna.png)
+![Image](https://data.enyxia.fr/images/characters/enyxiazero/ike.jpg)
 
