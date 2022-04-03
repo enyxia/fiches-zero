@@ -26,5 +26,5 @@ Ezwards est également l'Enfantique en possession de l'artifact appelé "Hyper-c
 
 `Jouée par Sheele`
 
-![Image](https://share.alkanife.fr/bna.png)
+![Image](https://data.enyxia.fr/images/characters/enyxiazero/ezwards.jpg)
 
