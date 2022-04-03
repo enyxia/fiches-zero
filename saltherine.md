@@ -1,2 +1,2 @@
-![image](https://data.enyxia.fr/images/characters/enyxizero/saltherine.jpg)
-![image](https://data.enyxia.fr/images/characters/enyxizero/salthemeta.png)
+![image](https://data.enyxia.fr/images/characters/enyxiazero/saltherine.jpg)
+![image](https://data.enyxia.fr/images/characters/enyxiazero/salthemeta.png)
