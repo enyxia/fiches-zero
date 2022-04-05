@@ -8,9 +8,9 @@
 
 **STATUS :** En vie (S2-now)
 
-**SPÉCIALISATIONS :** TBA [S]
+**SPÉCIALISATIONS :** Soutenant Assassin
 
-**ARME :** TBA
+**ARME :** L'arme de Mathiak'Alani est un sceptre de prêtresse du culte de Julie. Elle l'aurait volé après avoir tué la propriétaire, qui a été sa première victime.
 
 **TRAITS DE CARACTÈRE :** TBA
 
