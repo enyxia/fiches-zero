@@ -19,7 +19,7 @@
 **POUVOIR :** Alexia a la capacité de copier les pouvoirs des autres, cependant, ces derniers seront plus faibles. Elle a également la capacité de transmettre ces copies à une personne. La personne tierce pourra utiliser le pouvoir jusqu'à ce qu'Alexia décide de le lui retirer.
 Pour copier et transmettre, elle a besoin d'établir un contact physique avec le détenteur original. Plus le contact physique est long, plus la copie sera proche de la puissance de l'original.
 
-**INSPIRATIONS :** Athriah Anovra (Enyxia:Zero), Neito Monoma (My Hero Academia), Glenn Radars (Rokudenashi), Stella Vermillion (Rakudai kishi no Cavalry), Archer (Fate/stay night : Unlimited Blade Works), Golgo 13 (Golgo 13), Louise Le Blanc de La Vallière (Zero no Tsukaima)
+**INSPIRATIONS :** Athriah Anovra (Enyxia:Zero), Neito Monoma (My Hero Academia), Glenn Radars (Rokudenashi), Stella Vermillion (Rakudai kishi no Cavalry), Archer (Fate/stay night : Unlimited Blade Works), Golgo 13 (Golgo 13), Louise Le Blanc de La Vallière (Zero no Tsukaima), K5 (Girls' Frontline)
 
 **NOTES :** /
 
