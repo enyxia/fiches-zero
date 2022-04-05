@@ -2,7 +2,7 @@
 
 **RACE :** Humaine
 
-**ÂGE :** 13 ans (née le 14 août 1897)
+**ÂGE :** 21 ans (née le 14 août 1888)
 
 **SEXE :** Féminin
 
