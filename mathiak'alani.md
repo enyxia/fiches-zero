@@ -2,7 +2,7 @@
 
 **RACE :** Humaine
 
-**ÂGE :** TBA
+**ÂGE :** 25 ans (24 février 1884)
 
 **SEXE :** Féminin
 
