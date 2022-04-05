@@ -18,7 +18,7 @@
 
 **POUVOIR :** [Lié aux Enfantiques de la Sagesse, de la Vie et de la Régénération]
 
-**INSPIRATIONS :**
+**INSPIRATIONS :** Melina (Elden Rings), Keyaru (Redo of Healer), Norn Clatalissa Jioral (Redo of Healer), Griffith (Berserk)
 
 **NOTES :** [Mathiak'Alani est l'amie d'Atalaï Hitch]
 
