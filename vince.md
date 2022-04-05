@@ -10,7 +10,7 @@
 
 **SPÉCIALISATIONS :** Duelliste
 
-**ARME :** Lames variées 
+**ARME :** Vince avait pour réputation de se battre avec toutes sortes de lames avec aisance, qu'elles soient des dagues, des épées, des claymore ou encore des machettes, il les manie avec maitrise et prudence.
 
 **TRAITS DE CARACTÈRE :** Vince était quelqu’un de globalement silencieux et réfléchi, bien qu’il adorait plaisanter, notamment auprès de Selk, d’Argatha et de Flame. Il était un jeune prodigue du combat, ayant atteint le niveau d’un Haut-Général militaire à seulement douze ans et ayant été recruté parmi les cinq servants Deandal, après avoir vaincu Selk, Flame, Argatha et même Alice Deandal, la matriarche de la famille, en combat singulier. En fait, Vince était très apprécié comme étant un jeune homme juste, honnête et serviable au sein de son unité. Il était également très apprécié d’Alexia Deandal, entretenant une relation similaire à celle d’un frère et une sœur avec cette dernière à la demande de sa mère avant qu’elle ne décède. Vince ayant perdu ses parents durant son service auprès des Deandal et étant le dernier de sa lignée, car ses frères sont également tombés avec ses parents, il cessa de dissimuler son identité, créant ainsi un jeu de chat et de la souris avec Krumas Morgiane, le Haut-Général caldéen qui avait commandité l’élimination de ses proches et l’avait privé de toutes chances de s’excuser auprès d’eux pour son abandon. Vince haïssait Krumas du plus profond de son âme, et il élimina un bon nombre de soldats et de ses généraux. Malheureusement, Vince était du genre à prendre des risques, et était très confiant en son pouvoir. Peut-être se reposait-il trop sur ce dernier ? Peut-être que de posséder 9 vies chaque jour pouvait bien conduire certains vers la folie ? Vince tenta d’empoissonner le Haut-Général et ses bras-droits, tentant d’éliminer les plus grandes menaces caldéennes. Malheureusement pour lui, la seule cible qui importait avait survécu, ce qui lui le blessa dans son orgueil et le conduit à faire des erreurs, trop d’erreurs. Après être mort par 3 fois, il tenta de fuir, mais fût supprimé par le Haut-Général caldéen. Ainsi s’acheva la vie du servant Deandal le plus puissant et la lignée Moliero. Il aura tout de même gravement handicapé les hautes-sphères civiles et militaires de la région, permettant à ses employeurs de ne pas être inquiétés de Caldeum. Nyathlu, quant à elle, était comme son invocateur. Douce, agréable et serviable, malgré son aspect effrayant d’être d’outre-monde. Elle adorait particulièrement les parfums des forêts et des humains. Elle resta fidèle jusqu’à la toute fin de son invocateur. Peut-être qu’elle est maintenant retournée au néant, où vont toutes les invocations oubliées ? 
 
@@ -20,7 +20,7 @@
 
 **INSPIRATIONS :** /
 
-**NOTES :** /
+**NOTES :** Vince était le servant qu'Herbauges Grimborgias a remplacé. Il était assigné exclusivement à Caldeum et a été repéré par Saltherine Morgiane, la femme de Krumas Morgiane, le Haut-Général Caldéen.
 
 `Ce personnage créé par Sheele n'a jamais été joué. `
 
