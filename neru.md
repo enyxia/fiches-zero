@@ -22,7 +22,7 @@
 
 **NOTES :** Neru a toujours été considérée comme un monstre par sa famille à cause de ses pouvoirs dont elle ne connait pas l’origine. En manque de réponses concernant ses facultés elle fuit son village et sa famille. Après de longues journées de marche et de survie, elle trouva une ville où ses pouvoirs ne dérangeait personne et s’y installa. À partir de ce jour elle enchaîna les petits boulots en utilisant ces pouvoirs à son avantage.
 
-`Jouée par Sheele`
+`Jouée par Alkanife`
 
 ![Image](https://data.enyxia.fr/images/characters/enyxiazero/neru.png)
 
