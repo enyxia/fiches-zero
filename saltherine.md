@@ -14,7 +14,7 @@
 
 **TRAITS DE CARACTÈRE :** TBA
 
-**ASPECT PHYSIQUE :** TBA
+**ASPECT PHYSIQUE :** Saltherine est une femme qui n'a pas eu énormément de chance avec le temps, elle est de taille moyenne, et ses cheveux, autrefois blonds, sont désormais totalement argentés par l'âge. Elle ne quitte jamais sa tenue militaire, la tenue de général caldéen étant entièrement noire, elle a souvent très chaud, ce dont elle se plains souvent auprès de son mari. Ayant perdu un œil lors d'une bataille pour la conquête d'Avrasya, Saltherine porte un cache-œil ainsi que trois énormes balafres sur son visage. Son oeil restant, d'un jaune topaze, est perçant, mais il est également incapable de voir les couleurs. Sous sa forme de Krebskrum, Saltherine deviens une boule de poil totalement blanche aux extrémités rougeâtres, cependant, son cache-œil n'est pas présent sous cette forme, ne laissant place qu'à une paupière ouverte avec un trou béant à la place de l'œil droit.
 
 **POUVOIR :** Saltherine a la possibilité de se métamorphoser en Krebskrum, une petite créature plutôt rare aujourd'hui. Elle peut évidemment se changer en humaine à nouveau quand elle le souhaite.
 
