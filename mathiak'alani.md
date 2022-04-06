@@ -1,8 +1,8 @@
-# Mathiak'Alani Elavic, *TBA*
+# Mathiak'Alani Elavic, *Stratégie de la cruauté*
 
 **RACE :** Humaine
 
-**ÂGE :** 25 ans (24 février 1884)
+**ÂGE :** 25 ans (née le 24 février 1884)
 
 **SEXE :** Féminin
 
@@ -20,7 +20,7 @@
 
 **INSPIRATIONS :** Melina (Elden Rings), Keyaru (Redo of Healer), Norn Clatalissa Jioral (Redo of Healer), Griffith (Berserk)
 
-**NOTES :** [Mathiak'Alani est l'amie d'Atalaï Hitch]
+**NOTES :** L'amitié de Mathiak'Alani et d'Atalaï Hitch remonte à un évènement de leur enfance respective. Mathiak'Alani était à la tête d'un groupe de petites frappes, qui n'hésitait pas à dépouiller tous les malheureux enfants qui osaient pénétrer leur territoire. Un jour, ce groupe s'en est pris à Atalaï, qui ne s'est pas laissé faire. Atalaï a d'ailleurs battu chacun des membres du groupe de Mathiak'Alani, qui n'en démordait pas. La même histoire se répéta plusieurs fois pendant environ deux années, avant de se conclure quand Atalaï suivra Mathiak'Alani jusqu'à chez elle. Cette dernière a reconnu sa défaite, et depuis, les deux viennent chacun vers l'autre quand c'est nécessaire. Après la mort de sa famille, Mathiak'Alani vivra au coté d'Atalaï et partagera son lit, et sa vie, avec lui, bien qu'ils ne soient que des amis, du moins, de son point de vue.
 
 `Jouée par Sheele`
 ![Image](https://data.enyxia.fr/images/characters/enyxiazero/mathiakalani.png)
