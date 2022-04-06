@@ -18,7 +18,7 @@
 
 **POUVOIR :** Saltherine a la possibilité de se métamorphoser en Krebskrum, une petite créature plutôt rare aujourd'hui. Elle peut évidemment se changer en humaine à nouveau quand elle le souhaite.
 
-**INSPIRATIONS :** M16A1 (Girls' Frontline), Olena Tyrell (Game of Throne), Revy (Black Lagoon)
+**INSPIRATIONS :** M16A1 (Girls' Frontline), Olena Tyrell (Game of Throne), Revy (Black Lagoon), Saltorine Aldike (Peach Boy Riverside)
 
 **NOTES :** Bien qu'elle n'éprouve aucun amour pour ce dernier, Saltherine est bien mariée à Krumas Morgiane, son nom de jeune fille était Tak'Malaek. Elle est le plus souvent en mission d'espionnage.
 
