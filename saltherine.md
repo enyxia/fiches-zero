@@ -16,7 +16,7 @@
 
 **ASPECT PHYSIQUE :** TBA
 
-**POUVOIR :** / [Lié à l'Enfantique de la Métamorphose]
+**POUVOIR :** Saltherine a la possibilité de se métamorphoser en Krebskrum, une petite créature plutôt rare aujourd'hui. Elle peut évidemment se changer en humaine à nouveau quand elle le souhaite.
 
 **INSPIRATIONS :** M16A1 (Girls' Frontline), Olena Tyrell (Game of Throne), Revy (Black Lagoon)
 
