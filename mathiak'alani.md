@@ -16,7 +16,7 @@
 
 **ASPECT PHYSIQUE :** Mathiak'Alani est une grande femme au teint avalosien, habillée d'une tenue blanche très fine et serrée. Ses yeux et ses cheveux sont d'une couleur rose insolite. Du sang s'étant glissé dans ses ongles, elle a décidé de les vernir en noir, afin de cacher l'horreur de ses ongles. Ce sang, par ailleurs, est extrêmement lié aux cicatrices sur sa main gauche, qui avait été lacérée par sa sœur Argatha quand elles étaient plus jeunes. Elle utilise d'ailleurs des mitaines en laine pour dissimuler ces vieilles blessures. Quand Mathiak'Alani utilise ses pouvoirs, une marque bleutée apparait sur son œil gauche, la forçant à fermer cet œil.
 
-**POUVOIR :** [Lié aux Enfantiques de la Sagesse, de la Vie et de la Régénération]
+**POUVOIR :** Le pouvoir de Mathiak'Alani est relativement simple: Elle soigne de façon instantanée toutes sortes de blessures. Ce pouvoir, évidemment, est soumis à la contrainte de ne pas pouvoir se soigner soi-même. Son corps se soigne cependant légèrement plus vite que la normale, mais ce n'est pas "miraculeux".
 
 **INSPIRATIONS :** Melina (Elden Rings), Keyaru (Redo of Healer), Norn Clatalissa Jioral (Redo of Healer), Griffith (Berserk)
 
