@@ -18,7 +18,7 @@
 
 **POUVOIR :** Jener est capable de manipuler le tissu à son aise, cependant, il semblerait que le tissu avec lequel les rubans sont brodés soit celui qu'elle manipule avec une plus grande facilité. 
 
-**INSPIRATIONS :** TBA
+**INSPIRATIONS :** Aucune
 
 **NOTES :** Jener est la sœur cadette de la famille Elavic, c'est donc la petite sœur de Mathiak'Alani, la générale du Val Plaintif, et la grande sœur d'Argatha. Après avoir été vendue à la famille royale de Luna, puis jetée à la "mare aux esclaves", elle a été recueillie comme servante par la famille Horton. A la mort des maitres de la famille, elle n'apprécia pas l'héritière de ces derniers et prit la fuite vers Avrasya. Elle a été rattrapée par hasard par le seigneur Ike, et est désormais à la fois sa seule esclave et sa seule servante.
 
