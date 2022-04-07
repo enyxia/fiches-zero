@@ -20,7 +20,7 @@
 
 **INSPIRATIONS :** TBA
 
-**NOTES :** TBA [Jener est la grande soeur d'Argatha et la petite soeur de Mathiak'Alani]
+**NOTES :** Jener est la sœur cadette de la famille Elavic, c'est donc la petite sœur de Mathiak'Alani, la générale du Val Plaintif, et la grande sœur d'Argatha. Après avoir été vendue à la famille royale de Luna, puis jetée à la "mare aux esclaves", elle a été recueillie comme servante par la famille Horton. A la mort des maitres de la famille, elle n'apprécia pas l'héritière de ces derniers et prit la fuite vers Avrasya. Elle a été rattrapée par hasard par le seigneur Ike, et est désormais à la fois sa seule esclave et sa seule servante.
 
 `Joué par Sheele`
 
